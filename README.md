@@ -1,15 +1,1 @@
-JE SUIS TON PERE
-
-NOTHING HERE MISSING.no
-
-Modifié dans la branche feature1
-
-COCA COLA ESPUMA BRRRRRR
-
-desolé mais je suis comme cela :P
-
-PA PA PA PA PA PA PA PA PA 
-
-OK CES PAS MA FAUTE SI YA PAS OPTION TELEPATHIEQUE
-
-seul link peut vaincre ganon
+merci de ne pas lire les commit precedent
